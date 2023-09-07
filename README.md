@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Cyrilsos
 - 👀 I’m interested in movies,games,traviling
-- 🌱 I’m currently learning bcom computer
+- 🌱 I’m currently Working ina statup as a software enginer
 - 💞️ I’m looking to collaborate on learning coading
 - 📫 How to reach me cyrilcherian19@gmail.com
 
